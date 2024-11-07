@@ -1,2 +1,2 @@
 # Chained-to-the-Screen-The-Reality-of-Social-Media-Addiction_23BCA10071
-This illustration highlights the mental hold that social media has on individuals. A brain is depicted as being chained to a smartphone, symbolising the control these platforms can exert over our thoughts and attention.
+This illustration highlights the mental hold that social media has on individuals. A brain is depicted as being chained to a smartphone, symbolising the control these platforms can exert over our thoughts and attention.Social media notifications float around, representing the constant lure of likes, shares, and comments. The messages "Disconnect to reconnect" and "Be present, not plugged in" emphasize the need for digital detox and mindfulness in today's hyperconnected world.
